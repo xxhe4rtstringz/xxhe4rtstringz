@@ -1,11 +1,7 @@
 
 <p align="center">
   <img src="https://carcuvorous.carrd.co/assets/images/gallery10/ee3446d6.png?v=b471a82b"><br/>
-  <i><sub>
-    now that we have our world in front of us<br/>
-    we're never turning back<br/>
-    how could we ever not believe ?<br/>
-  </i></sub>
+  <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=jayy2007&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=990000&bar_color_cover=false">
     <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
     <br/>
