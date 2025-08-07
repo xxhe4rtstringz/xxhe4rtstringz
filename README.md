@@ -19,7 +19,6 @@
     <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
     <br/>
-    <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery13/5d84dc9d.jpg?v=b471a82b" hspace="10" >
   <img src="https://carcuvorous.carrd.co/assets/images/gallery13/abd8e131.png?v=b471a82b" hspace="10" >
   <img src="https://carcuvorous.carrd.co/assets/images/gallery22/5ff5936f.png?v=b471a82b" hspace="10" >
