@@ -9,6 +9,8 @@
    <br/> 
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery01/edef538f.gif?v=b471a82b">
     <br/>
+  <img align="center" src="https://komarev.com/ghpvc/?username=xxhe4rtstringz&color=6e1111&style=plastic&label=༒︎i+luv+u..+⟢&abbreviated=true">
+    <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
     <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery13/5d84dc9d.jpg?v=b471a82b" hspace="10" >
