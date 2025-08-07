@@ -12,7 +12,13 @@
     <br/>
   <img align="center" src="https://komarev.com/ghpvc/?username=xxhe4rtstringz&color=6e1111&style=plastic&label=༒︎+i+luv+u+⟢&abbreviated=true">
     <br/>
+    <br/>
+  <I><sub>feel free 2 screenshot/colorpick my skins for inspo</sub></I><br/>
+  <I><sub>all i ask is that u don't <ins><b>fully</b></ins> copy my hard work xx</sub></I>
+    <br/>
+    <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
+    <br/>
     <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery13/5d84dc9d.jpg?v=b471a82b" hspace="10" >
   <img src="https://carcuvorous.carrd.co/assets/images/gallery13/abd8e131.png?v=b471a82b" hspace="10" >
