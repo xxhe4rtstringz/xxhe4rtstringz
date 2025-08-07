@@ -15,4 +15,5 @@
     <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery04/790013b5.gif?v=b471a82b">
 </p>
+<img align="left" src="https://carcuvorous.carrd.co/assets/images/gallery15/caf9d7e5.png?v=b471a82b">
 <img align="right" src="https://carcuvorous.carrd.co/assets/images/gallery01/38f981df.gif?v=b471a82b">
