@@ -18,7 +18,7 @@
     <br/>
   <I><sub>feel free 2 screenshot/colorpick my skins for inspo</sub></I>
     <br/>
-  <I><sub>all i ask is that u don't <ins><b>fully</b></ins> copy my hard work xx</sub></I>
+  <I><sup>all i ask is that u don't <ins><b>fully</b></ins> copy my hard work xx</sup></I>
     <br/>
   <img align="left" src="https://carcuvorous.carrd.co/assets/images/gallery17/7342a9bc.png?v=b471a82b" hspace="50">
   <img align="right" src="https://carcuvorous.carrd.co/assets/images/gallery17/bb04c545.png?v=b471a82b" hspace="50">
