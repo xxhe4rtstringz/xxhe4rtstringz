@@ -16,11 +16,13 @@
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery20/f4878d02.gif?v=b471a82b">
     <br/>
     <br/>
-  <I><sub>feel free 2 screenshot/colorpick my skins for inspo</sub></I><br/>
+  <I><sub>feel free 2 screenshot/colorpick my skins for inspo</sub></I>
+    <br/>
   <I><sub>all i ask is that u don't <ins><b>fully</b></ins> copy my hard work xx</sub></I>
     <br/>
-  <img align="left" src="https://carcuvorous.carrd.co/assets/images/gallery17/7342a9bc.png?v=b471a82b" hspace="175">
-  <img align="right" src="https://carcuvorous.carrd.co/assets/images/gallery17/bb04c545.png?v=b471a82b" hspace="175">
+  <img align="left" src="https://carcuvorous.carrd.co/assets/images/gallery17/7342a9bc.png?v=b471a82b" hspace="150">
+  <img align="right" src="https://carcuvorous.carrd.co/assets/images/gallery17/bb04c545.png?v=b471a82b" hspace="150">
+    <I><align="center">⛔️ always DND , c+h freely ⛔️</align></I>
     <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
     <br/>
