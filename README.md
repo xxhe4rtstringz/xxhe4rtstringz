@@ -22,7 +22,7 @@
     <br/>
   <img align="left" src="https://carcuvorous.carrd.co/assets/images/gallery17/7342a9bc.png?v=b471a82b" hspace="30">
   <img align="right" src="https://carcuvorous.carrd.co/assets/images/gallery17/bb04c545.png?v=b471a82b" hspace="30">
-    <I><align="center">⛔️ always DND , c+h freely ⛔️</align></I>
+  <I><align="center"><hspace="20">⛔️ always DND , c+h freely ⛔️</hspace></align></I>
     <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
     <br/>
