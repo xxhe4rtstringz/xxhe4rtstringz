@@ -34,5 +34,7 @@
     <br/>
     <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery04/790013b5.gif?v=b471a82b">
+    <br/>
+  <I><sup>certified retarded faggot hermaphrodite beaner est. 2007</sup></I>
 </p>
 
