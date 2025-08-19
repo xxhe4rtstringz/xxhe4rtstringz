@@ -21,7 +21,7 @@
   <I><sup>all i ask is that u don't <ins><b>fully</b></ins> copy my hard work xx</sup></I>
     <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery17/7342a9bc.png?v=b471a82b" hspace="30">
-  <align="center"><hspace="20">⛔️ <I>always DND , cudcomf</I> ⛔️</hspace></align>
+  <align="center"><hspace="20">⛔️⠀ <I>always DND , cudcomf</I> ⠀⛔️</hspace></align>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery17/bb04c545.png?v=b471a82b" hspace="30">
     <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
