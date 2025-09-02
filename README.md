@@ -5,7 +5,7 @@
   <img align="right" src="https://carcuvorous.carrd.co/assets/images/gallery06/23ee68b0.png?v=b471a82b">
     <br/>
   <img align="center" width="75" src="https://wilardo.crd.co/assets/images/gallery33/1938e64e.png?v=c0a0770b">
-  <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=jayy2007&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=b7b7b7&bar_color_cover=false">
+  <img align="center" src="https://spotify-github-profile.kittinanx.com/api/view?uid=jayy2007&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&bar_color=b7b7b7&bar_color_cover=false">
   <img align="center" width="75" src="https://f3verdream.carrd.co/assets/images/gallery01/9ceaa05a.png?v=e7b83c53">
     <br/> 
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery01/edef538f.gif?v=b471a82b">
