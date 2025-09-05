@@ -29,9 +29,9 @@
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
     <br/>
   <img height="120" align="left" src="https://carcuvorous.carrd.co/assets/images/gallery19/8f46ce2b.png?v=b471a82b">
-  <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery13/5d84dc9d.jpg?v=b471a82b" hspace="10" >
+  <img align="center" src="https://camo.githubusercontent.com/dddf4040bdb46201a2b48099500e35b8cff9e11e7b27867120d4a1b391d132fd/68747470733a2f2f6633766572647265616d2e63617272642e636f2f6173736574732f696d616765732f67616c6c65727930322f37313639333837612e706e673f763d6239336437633936" hspace="10" >
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery13/abd8e131.png?v=b471a82b" hspace="10" >
-  <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery22/5ff5936f.png?v=b471a82b" hspace="10" >
+  <img align="center" src="https://camo.githubusercontent.com/22f28c13faad5dce33965d7af13619e5ed3eb508cad2d9a62b5d964bc1320b3c/68747470733a2f2f6633766572647265616d2e63617272642e636f2f6173736574732f696d616765732f67616c6c65727930322f62343637613636662e6769663f763d6464343532393430" hspace="10" >
   <img align="right" src="https://carcuvorous.carrd.co/assets/images/gallery01/38f981df.gif?v=b471a82b">
     <br/>
     <br/>
