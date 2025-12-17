@@ -26,7 +26,7 @@
   <align="center"><hspace="20">⛔️⠀ <I><ins><b>always DND , cudcomf</b></ins></I> ⠀⛔️</hspace></align>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery17/bb04c545.png?v=b471a82b" hspace="30">
     <br/>
-    <sub><i><b>NOT</b></i> a midsaken fan. <b>/srs</b></sub>
+    <sub><i><b>NOT</b></i> a midsaken fan nor do i play it.</sub>
     <br/>
     <sup>does not change the fact i <b><i>AM</i></b> the <i><ins>real</ins></i> 2time</sup>
     <br/>
