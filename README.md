@@ -30,6 +30,10 @@
     <br/>
     <sup>does not change the fact i <b><i>AM</i></b> the <i><ins>real</ins></i> 2time</sup>
     <br/>
+    <sub>im not an irl/da/whatever tf you freaks call yourselves now</sub>
+    <br/>
+    <sup>i am two-time, end of discussion do not question my identity</sup>
+    <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery10/aa18af73.png?v=b471a82b">
     <br/>
   <img align="center" src="https://camo.githubusercontent.com/dddf4040bdb46201a2b48099500e35b8cff9e11e7b27867120d4a1b391d132fd/68747470733a2f2f6633766572647265616d2e63617272642e636f2f6173736574732f696d616765732f67616c6c65727930322f37313639333837612e706e673f763d6239336437633936" hspace="10" >
