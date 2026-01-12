@@ -9,10 +9,6 @@
   <img align="center" width="75" src="https://f3verdream.carrd.co/assets/images/gallery01/9ceaa05a.png?v=e7b83c53">
     <br/> 
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery01/edef538f.gif?v=b471a82b">
-    <br/>
-    <sub>byi im an actual retarded loser.</sub>
-    <br/>
-    <i><sup>please be patient i have autism</sup></i>
      <br/>
   <img height="100" align="left" src="https://carcuvorous.carrd.co/assets/images/gallery15/caf9d7e5.png?v=b471a82b">
   <img height="100" align="right" src="https://carcuvorous.carrd.co/assets/images/gallery19/07bc9df8.png?v=b471a82b">
