@@ -44,7 +44,7 @@
     <br/>
   <img align="center" src="https://carcuvorous.carrd.co/assets/images/gallery05/e8665fe8.gif?v=b471a82b">
     <br/>
-  <sup> <a href="https://2wo2ime.atabook.org">atabook</a> ⠀⋆⠀ <a href="https://www.patreon.com/c/he4rtstringz/about">about me</a> ⠀⋆⠀ <a href="https://xxhe4rtstringz.carrd.co/">interests</a> </sup>
+  <sup> <a href="https://2wo2ime.atabook.org">atabook</a> ⠀⋆⠀ <a href="https://xxhe4rtstringz.carrd.co/">interests</a> </sup>
     <br/>
   <sub><a href="https://github.com/pt-awards">pt-awards</a></sub>
     <br/>
