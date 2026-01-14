@@ -48,6 +48,8 @@
     <br/>
   <sub><a href="https://github.com/pt-awards">pt-awards</a></sub>
     <br/>
+  <sup>was xxhe4rtstringz</sup>
+    <br/>
   <img src="https://carcuvorous.carrd.co/assets/images/gallery16/56131bd6.png?v=b471a82b">
 </p>
 
